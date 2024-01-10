@@ -1,0 +1,1 @@
+# 3-modul_1-amaliyot
